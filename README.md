@@ -33,6 +33,6 @@ Se tiver alguma sugestão de como melhorar o código, sugestão de novas feature
 
 ### 🧑 Veja mais sobre mim
 
-- Acesse meu canal do [YouTube](https://youtube.com/gamesantos)
+- Acesse meu canal do [YouTube](https://www.youtube.com/channel/UC-8MQslkT5DWN1JJOZEKdgg)
 - Me siga no [Instagram](https://instagram.com/vilarezz)
 - Veja Meu [LinkedIn](https://www.linkedin.com/in/vilarezz)
